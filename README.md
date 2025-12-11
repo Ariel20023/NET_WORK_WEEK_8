@@ -1,1 +1,3 @@
-# NET_WORK_WEEK_8
+ariel_izralevitch
+207827924
+negev
